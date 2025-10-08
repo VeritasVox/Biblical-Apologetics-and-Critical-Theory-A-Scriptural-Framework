@@ -4,6 +4,8 @@
 
 **Description:** A comprehensive examination of biblical apologetics and critical theory from a Reformed, presuppositional perspective. Explores why Scripture alone provides the foundation for knowledge, how to engage unbelief, and why critical theory's categories fail biblical tests. Demonstrates that critical theory is not merely flawed sociology but a counterfeit gospel that enslaves, while Christ alone offers true freedom. Includes practical guidance for pastors, apologists, and believers engaging contemporary ideologies.
 
+Be sure to download the field manual version in PDF format above.
+
 ---
 
 ## Table of Contents
